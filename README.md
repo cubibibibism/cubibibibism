@@ -9,6 +9,6 @@
 　　　　
 　　　　　　<img width="100" height="100" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/682b90e5-1407-44ae-b568-9aeda8ce2193" />
 
-　　　　　　　　　　　　　　　[strawpage](https://nanasuii.straw.page/)　[carrd](https://nasuiiv.carrd.co/)　rentry(unfinished)
+　<p align="center">　[strawpage](https://nanasuii.straw.page/)　[carrd](https://nasuiiv.carrd.co/)　
 
 　　　　　　<img width="100" height="100" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/682b90e5-1407-44ae-b568-9aeda8ce2193" />
